@@ -1,1 +1,0 @@
-# sendaishi-hoiku-kyujin
